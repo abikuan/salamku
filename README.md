@@ -1,0 +1,2 @@
+# salamku
+assalamu'alaikum
